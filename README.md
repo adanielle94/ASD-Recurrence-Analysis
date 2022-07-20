@@ -1,0 +1,1 @@
+# Quantifying-Patterns-of-Production-for-Children-on-the-Autism-Spectrum-using-Recurrence-Analysis
